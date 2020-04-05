@@ -11,7 +11,6 @@
 
 
 <img src=./Durer.jpg/ title = "Albrecht Dürer-wood engraving" width = "420" height = "300" />
-
 **Albrecht Dürer-wood engraving**
 
 Επίσης ο Combrich αναφέρει πως ο Berkeley George  τον 18ο αι. στο βιβλίο του *Νέα Θεωρία της όρασης*, περιγράφει  ότι η εικόνα του κόσμου δημιουργείται  μέσα από την πολύχρονη εμπειρία . Το μυαλό μετατρέπει τις εμπειρίες σε αντιλήψεις . 
