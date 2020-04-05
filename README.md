@@ -27,4 +27,5 @@
 Βιβλιογραφία-Ιστογραφία
 Κατερίνα Ζαχαροπούλου. *Για τα πράγματα που λείπουν*.(Αθήνα:Άγρα,2009) σελ.14
 Joseph Kosuth, “Art after Philosophy”, αναδημ. Guercio G. (ed), Joseph Kosuth-Art after Philosophy and after, MIT Press 1991, p. 16.
-[Χρήστος Αντωνιάδης.*Αντίληψη και δημιουργία στην αισθητική θεωρία του  Gombrich*] (http://ikee.lib.auth.gr/record/130123/files/GRI-2012-9414.pdf)
+[Χρήστος Αντωνιάδης.*Αντίληψη και δημιουργία στην αισθητική θεωρία του  Gombrich*] 
+(http://ikee.lib.auth.gr/record/130123/files/GRI-2012-9414.pdf)
